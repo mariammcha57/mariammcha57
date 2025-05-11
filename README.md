@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... maboumou@uci.edu or Slack!
 - 😄 Pronouns: ... She/her
-- ⚡ Fun fact: ... I have Puggle Dog
+- ⚡ Fun fact: ... I have a Puggle Dog
 
 <!---
 mariammcha57/mariammcha57 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
