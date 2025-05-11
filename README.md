@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mariammcha57
 - 👀 I’m interested in ... Being a better UX designer, learning better, and always improving myself.
-- 🌱 I’m currently doing .. a Master of Human-Computer Interaction.
+- 🌱 I’m currently doing .. a Master's in Human-Computer Interaction.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... maboumou@uci.edu or Slack!
 - 😄 Pronouns: ... She/her
